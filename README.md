@@ -10,8 +10,7 @@ Além do Código: O que a Mentoria #Expert me ensinou sobre o mercado de trabalh
 ​Não podemos nos permitir ficar estagnadas ou perdidas no tempo. A tecnologia nos deu o poder da escolha, e cabe a nós usar essa autonomia para evoluir constantemente.
 ​O meu convite para você
 ​Acredito que o aprendizado é exponencial quando compartilhado. Estou construindo uma jornada de evolução constante e quero convidar quem também busca se destacar no setor de tecnologia para conectar comigo.
-​Se você está em busca dessa evolução ou quer trilhar esse caminho de aprendizado comigo, convido você a se inscrever no meu link: https://lnkd.in/dtABKDRj 
+​Se você está em busca dessa evolução ou quer trilhar esse caminho de aprendizado comigo, convido você a se inscrever no meu link: https://www.dio.me/sign-up?ref=987EB7236BFA4ACEB045953D436FF6AE
  #Embaixadora Viviane Setiba  #ViviTech #IA #DioCampusExpert #Turma16
- IMG-20260529-WA0001.jpg
- <img src="https://www.dio.me/sign-up?ref=987EB7236BFA4ACEB045953D436FF6AE" alt="IMG-20260529-WA0001.jpg">
+ 
  
